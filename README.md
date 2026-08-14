@@ -1,0 +1,1 @@
+# Gerador-de-Teorias-da-Conspira-o-Absurdas
